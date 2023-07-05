@@ -19,39 +19,62 @@ Förderverein MeKo e.V.
 Mennonitenstr. 5
 22769 Hamburg
 
+
 E-Mail: info@foerderverein-meko.de
+
 
 Gemeinschaftlich
 vertretungsberechtigt: 
-1. Vorsitzende:
+
+Erste Vorsitzende:
+
 Jennifer Maiwald
+
 c/o Förderverein MeKo e.V.
+
 Mennonitenstr. 5
+
 22769 Hamburg
 
 E-Mail: info@foerderverein-meko.de
 
-2. Vorsitzende:
+
+Zweite Vorsitzende:
+
 Katharina von Huene
+
 c/o Förderverein MeKo e.V.
+
 Mennonitenstr. 5
+
 22769 Hamburg
 
 E-Mail: info@foerderverein-meko.de
+
 
 Schatzmeister:
+
 Malte Klemm
+
 c/o Förderverein MeKo e.V.
+
 Mennonitenstr. 5
+
 22769 Hamburg
 
 E-Mail: info@foerderverein-meko.de
 
+
 Registergericht: Amtsgericht Hamburg
+
 Registernummer: VR 25312
 
 V.i.S.d § 18 Abs. 2 MStV
+
 Malte Klemm
+
 c/o Förderverein MeKo e.V.
+
 Mennonitenstr. 5
+
 22769 Hamburg
