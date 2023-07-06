@@ -11,7 +11,7 @@ Wir setzen uns dafür ein, dass die Kinder in einer inspirierenden Umgebung lern
 
 Wir freuen uns über jedes Engagement und jede Unterstützung. Gemeinsam können wir die Kita zu einem noch besseren Ort für unsere Kinder machen.
 
-[Flyer](MeKo_Flyer_06_dr.pdf)
+[Flyer](MeKo_Flyer_06dr.pdf)
 
 ## Impressum
 
